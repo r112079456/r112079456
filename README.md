@@ -8,4 +8,4 @@ meu nome é Rafael lopes
 - ### Você pode entrar em contato comigo 📪
 rafaloluz@gmail.com
 
-![image](https://github.com/user-attachments/assets/29278341-d8c3-4ba2-84c1-ddddc62a88d0)
+![image](https://github.com/user-attachments/assets/29278341-d8c3-4ba2-84c1-ddddc62a88d00).
